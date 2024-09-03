@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... my journey from the UK to USA
 - 📫 How to reach me: ... via email
 - 😄 Pronouns: ... he/him
-- ⚡ Fun fact: ... I have me Bernie Sanders
+- ⚡ Fun fact: ... I have met Bernie Sanders
 - **HAVE FUN** 
 - 😀😀
